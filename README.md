@@ -1,2 +1,2 @@
 # sharon-portfolio
-Portfolio of Sharon — visual design expert. 5+ years in branding, social media, and illustration. Leads 10+ teams, integrates AI for scalable delivery. Helping brands build meaningful connections.
+Portfolio of Ying Sheng(Sharon) — Brand & marketing visual design specialist.with 5+ years of design experience, including 2 years of team leadership （teams of up to 10）. I combine strategic design thinking with AIGC-embedded workflows to deliver high-quality work at scale. Grounded in client-first design, and seeking a senior role in a global company.
